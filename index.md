@@ -37,6 +37,7 @@ Topics of interest include:
 [Hannah Devinney](https://www.umu.se/en/staff/hannah-devinney/), Umeå University
 [Simon Dobnik](https://www.gu.se/en/about/find-staff/simondobnik), University of Gothenburg
 [Beáta Megyesi](https://www.su.se/english/profiles/beba5639-1.468162), Stockholm University
+[Maria Irena Szawerna](https://www.gu.se/om-universitetet/hitta-person/mariaszawerna), Gothenburg University
 
 ## Get involved
 
